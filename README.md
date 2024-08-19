@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SuddenlyIris
+- 👀 I’m interested in violin
+- 🌱 I’m currently learning python
+- 😄 Pronouns: he/they
+- ⚡ Fun fact: I have two cats
